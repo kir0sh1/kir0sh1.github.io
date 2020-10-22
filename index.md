@@ -14,3 +14,6 @@ He has several silver cartilage piercings in both ears, and a triple nostril pie
 When he joins the Vanguard Action Squad, his look is updated, now consisting of a larger dark blue coat with two large metal cuffs at the end of each elbow-length sleeve, and a white stitch design on each of his shoulders, the hem ripped, extending down to his knees. His shirt and belt stay the same, but he replaces his pants with some larger ones of a darker color, and his shoes with black boots.
 
 Around the time of the formation of the Paranormal Liberation Front, Dabi acquires a new outfit to complete his status as one of the nine lieutenants of the organization. Dabi wears a darkish blue long coat with the same white cuffs similar to his previous one. In addition, he dons a white v-necked shirt with white outlines. His stitches not only extends to his shoulder pads but also the kneecaps of his pants. The only things he retains are his silver belt, black boots, and his dark-colored pants. He also has three buttons on both sides of his coat.
+
+## Quote
+The League? Shigaraki? I never gave a crap about them. A single person with a single conviction has the power to change the world. There are no true heroes. I plan to make Stain's will a reality.
