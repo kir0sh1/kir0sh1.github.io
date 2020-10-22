@@ -17,3 +17,5 @@ Around the time of the formation of the Paranormal Liberation Front, Dabi acquir
 
 ## Quote
 The League? Shigaraki? I never gave a crap about them. A single person with a single conviction has the power to change the world. There are no true heroes. I plan to make Stain's will a reality.
+
+<img src="https://1.bp.blogspot.com/-FT8FRn2eA9E/X3SdPrVRsNI/AAAAAAAADQg/JQzMGUz27aQW-zT_U14g32zKUDLRS2CAgCNcBGAsYHQ/w914-h514-p-k-no-nu/dabi-bnha-my-hero-academia-uhdpaper.com-4K-6.3066-wp.thumbnail.jpg"/>
